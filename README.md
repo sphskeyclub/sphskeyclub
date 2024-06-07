@@ -4,5 +4,6 @@
 - ⚡ Fun fact: Caring is our way of life! <3
 
 ### Webmasters:
-Jocelyne Lioe (2023-2024)
+Gavin Tran (2022-2023)
+<br>Jocelyne Lioe (2023-2024)
 <br>Zachary Ratkiewicz (2024-2025)
