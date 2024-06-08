@@ -5,4 +5,4 @@
 
 ### Webmasters:
 Jocelyne Lioe (2023-2024)
-<br>Zachary Ratkiewicz (2024-2025)
+<br>Zachary Ratkiewicz (current)
